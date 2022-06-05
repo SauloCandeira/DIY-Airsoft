@@ -17,3 +17,6 @@ https://www.youtube.com/watch?v=tuFZ_j5xP2E
 
 Airsoft Sentry Turret
 https://www.youtube.com/watch?v=sp2DDisohS4
+
+Building an FGC-9 MK2
+https://www.youtube.com/watch?v=ZyCoVPts2D8
