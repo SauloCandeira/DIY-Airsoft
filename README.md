@@ -14,3 +14,6 @@ https://www.youtube.com/watch?v=7MOooP-GrVY
 
 Projeto Rifle MK Airsoft Spring com peças em 3d bem mais fácil construir agora.
 https://www.youtube.com/watch?v=tuFZ_j5xP2E
+
+Airsoft Sentry Turret
+https://www.youtube.com/watch?v=sp2DDisohS4
