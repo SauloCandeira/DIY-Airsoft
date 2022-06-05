@@ -11,3 +11,6 @@ https://www.instructables.com/3D-Printable-Airsoft-Gun/
 
 como fazer uma Airsoft na impressora 3D
 https://www.youtube.com/watch?v=7MOooP-GrVY
+
+Projeto Rifle MK Airsoft Spring com peças em 3d bem mais fácil construir agora.
+https://www.youtube.com/watch?v=tuFZ_j5xP2E
