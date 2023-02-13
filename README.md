@@ -9,6 +9,10 @@
 
 
 Fonte:
+
+3D Printed Semi Auto BB G17 Pistol
+https://www.youtube.com/watch?v=XoG9oxoh_Lo
+
 AIRSOFT GUN COLT-1991
 https://www.thingiverse.com/thing:4362606
 
