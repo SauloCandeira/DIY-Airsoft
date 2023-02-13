@@ -1,5 +1,11 @@
 # DIY-Airsoft
 
+# Print Files
+
+1º - Lower receiver
+2º - Trigger 
+3º - 
+
 
 Fonte:
 
