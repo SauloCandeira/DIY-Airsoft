@@ -3,8 +3,9 @@
 # Print Files
 
 1º - Lower receiver
-2º - Trigger 
-3º - 
+2º - Trigger box
+3º - Grip
+4º - Magazine
 
 
 Fonte:
