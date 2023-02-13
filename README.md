@@ -9,6 +9,8 @@
 
 
 Fonte:
+AIRSOFT GUN COLT-1991
+https://www.thingiverse.com/thing:4362606
 
 Construindo arma de Airsoft em impressora 3D
 https://carabinasdear.com.br/caforum/index.php?/topic/13263-construindo-arma-de-airsoft-em-impressora-3d/
